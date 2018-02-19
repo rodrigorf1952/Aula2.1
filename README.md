@@ -1,1 +1,3 @@
-# Aula2.1
+ana paula arósio
+chloe moretz
+christina ricci
