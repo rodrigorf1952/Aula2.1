@@ -1,3 +1,4 @@
 ana paula arósio
-chloe moretz
+Paula Fernandes
 christina ricci
+scarlett johansson
